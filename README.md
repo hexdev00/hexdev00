@@ -45,7 +45,7 @@ Topics :
 
 --------------
 
-[TELEGRAM CHANNEL](https://t.me/hexdevz)
+[TELEGRAM CHANNEL](https://t.me/hexdev)
 
 --------------
 
